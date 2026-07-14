@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FOVA930819MMCLNN01
+FOVA930819MMCLNN01
